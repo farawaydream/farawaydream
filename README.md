@@ -1,7 +1,8 @@
-<p align="center">$\color{#AFB7C0}{\textsf{Spawn's Favorite}}$
-</p>
-<p align="center"><img width="409" height="417" alt="image" src="https://github.com/user-attachments/assets/2b8afbb6-591f-4618-83ea-b0f05fb3d801" />
+<p align="center"><img width=600" height="400" alt="image" src="https://github.com/user-attachments/assets/f1fa8afb-6174-4eec-946b-32be5aca3045" />
 
-</p>
-<p align="center">$\color{#AFB7C0}{\textsf{two time ᵒʳ times ༝ they them ༝ introject}}$
-</p>
+<div align="center">
+  
+[rentry](https://rentry.co/mafiaregime) ᭥
+[extended/byi](https://rentry.co/mafiaregimeext) ᭥
+[atabook](https://undyingregret.atabook.org/)
+</div>
