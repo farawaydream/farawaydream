@@ -1,4 +1,4 @@
-<p align="center"><img width="610" height="220" alt="image" src="https://github.com/user-attachments/assets/3e7a0bb4-92f9-420d-9b49-303b6086e359" />
+<p align="center"><img width="610" height="200" alt="image" src="https://github.com/user-attachments/assets/3e7a0bb4-92f9-420d-9b49-303b6086e359" />
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Yuji+Mai&size=24&duration=4800&pause=900&color=ADB4C6&center=true&vCenter=true&width=500&lines=It+is+more+likely+for+ghost+ships+to+exist;than+it+is+for+me+to+lie+to+you.+%5E_%5E" alt="Typing SVG" /></a>
 
@@ -12,5 +12,5 @@
 [atabook](https://undyingregret.atabook.org/)
 </div>
 
-<p align="center"><img width="650" height="260" alt="image" src="https://github.com/user-attachments/assets/f14a1e8d-8d3e-4807-a8cb-60bce19ebd12" />
+<p align="center"><img width="630" height="240" alt="image" src="https://github.com/user-attachments/assets/f14a1e8d-8d3e-4807-a8cb-60bce19ebd12" />
 
