@@ -11,6 +11,3 @@
 [extended/byi](https://rentry.co/mafiaregimeext) ᭥
 [atabook](https://undyingregret.atabook.org/)
 </div>
-
-<p align="center"><img width="630" height="240" alt="image" src="https://github.com/user-attachments/assets/f14a1e8d-8d3e-4807-a8cb-60bce19ebd12" />
-
