@@ -10,5 +10,7 @@ ask to dm me on discord if someone on here is deemed “problematic” and ill s
 
 people who were on this page originally will get their mentions back so if they get theirs and its a character you wanted theres sadly nothing we can do about it :(
 
+nominate yourself or a friend as someone’s number one fan !
+
 [atabook](https://fan-town.atabook.org/)
 </div>
