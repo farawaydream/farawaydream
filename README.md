@@ -1,3 +1,5 @@
+<p align="center"><img width="574" height="130" alt="image" src="https://github.com/user-attachments/assets/ce403cfa-4a22-4a36-aa6b-99b7d36c9808" />
+
 <div align="center">
 
 reclaiming this url as the og owner has sadly deleted their account, please wish them the best. please refer to the new atabook for submissions
