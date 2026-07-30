@@ -8,5 +8,7 @@ reclaiming this url as the og owner has sadly deleted their account, please wish
 
 ask to dm me on discord if someone on here is deemed “problematic” and ill sort it out
 
+people who were on this page originally will get their mentions back so if they get theirs and its a character you wanted theres sadly nothing we can do about it :(
+
 [atabook](https://fan-town.atabook.org/)
 </div>
