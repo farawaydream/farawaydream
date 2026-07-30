@@ -15,7 +15,7 @@ nominate yourself or a friend as someone’s number one fan ! this will be updat
 [atabook](https://fan-town.atabook.org/)
 </div>
 
-last update : july 30th
+last update : july 30th (2PM CDT)
 
 [@undyingregret](https://github.com/undyingregret?tab=followers) : Azurewrath’s biggest fan!
 
@@ -68,3 +68,39 @@ last update : july 30th
 [@AcxerSonnellino](https://github.com/AcxerSonnellino) : Guest 1337’s biggest fan!
 
 [@chevaIier](https://github.com/chevaIier) : William Afton’s biggest fan!
+
+[@Matt-1337](https://github.com/Matt-1337) : Jean’s biggest fan!
+
+[@themacewielder](https://github.com/themacewielder) : Wemmbu’s biggest fan!
+
+[@realdustsans](https://github.com/realdustsans) : Dust!Sans’ biggest fan!
+
+[@ShellzyFossilzianz](https://github.com/ShellzyFossilzianz) : 1x1x1x1’s biggest fan!
+
+[@eggcchan](https://github.com/eggcchan) : eggchan’s biggest fan!
+
+[@martycorn](https://github.com/martycorn) : Vampire Cookie’s biggest fan!
+
+[@spokeisheres](https://github.com/spokeisheres) : SpokeIsHere’s biggest fan!
+
+[@horroryaoi](https://github.com/horroryaoi) : Ben Park’s biggest fan!
+
+[@OV3RCA5T](https://github.com/OV3RCA5T) : Contractee’s biggest fan!
+
+[@puppytreat](https://github.com/puppytreat) : Elliot’s biggest fan!
+
+[@WishingAnge](https://github.com/WishingAngel) : Subspace’s biggest fan!
+
+[@WhispedVanilla](https://github.com/WhispedVanilla) : Slingshot’s biggest fan!
+
+[@OutcomeMems](https://github.com/OutcomeMems) : 2011x’s biggest fan!
+
+[@avenueq](https://github.com/avenueq) : Aventurine's biggest fan!
+
+[@zt4r-z](https://github.com/Zt4r-z) : Pandemonium’s biggest fan!
+
+[@LCB61](https://github.com/LCB61) : Yi Sang’s biggest fan!
+
+[@camycatyy](https://github.com/camycatyy) : Niko Oneshot's biggest fan!
+
+[@evbomc](https://github.com/evbomc) : Evbo’s biggest fan!
