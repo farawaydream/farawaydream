@@ -1,3 +1,5 @@
+<p align="center"> inspired by title-town and various other pony town accounts!
+
 <p align="center"><img width="574" alt="image" src="https://github.com/user-attachments/assets/ce403cfa-4a22-4a36-aa6b-99b7d36c9808" />
 
 <div align="center">
