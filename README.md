@@ -15,7 +15,7 @@ nominate yourself or a friend as someone’s number one fan ! this will be updat
 [atabook](https://fan-town.atabook.org/)
 </div>
 
-last update : july 30th (2PM CDT)
+last update : july 30th (4PM CDT)
 
 [@undyingregret](https://github.com/undyingregret?tab=followers) : Azurewrath’s biggest fan!
 
@@ -59,7 +59,7 @@ last update : july 30th (2PM CDT)
 
 [@kniferrific](https://github.com/kniferrific) : Jackson Storm’s biggest fan!
 
-[@ACE0FHEART5](https://github.com/ACE0FHEART5) : Chance’s (Forsaken) biggest fan!
+[@Gamblersi](https://github.com/Gamblersi) : Chance’s (Forsaken) biggest fan!
 
 [@siriuzs](https://github.com/siriuzs) : Fluttershy’s biggest fan!
 
@@ -104,3 +104,7 @@ last update : july 30th (2PM CDT)
 [@camycatyy](https://github.com/camycatyy) : Niko Oneshot's biggest fan!
 
 [@evbomc](https://github.com/evbomc) : Evbo’s biggest fan!
+
+[@AshesOfHerHalo](https://github.com/AshesOfHerHalo) : Applejack’s biggest fan!
+
+[@UICTIM](https://github.com/UICTIM) : TDL’s biggest fan!
