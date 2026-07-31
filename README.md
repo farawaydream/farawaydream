@@ -143,4 +143,4 @@ last update : july 31st (3AM CDT)
 
 [@sleepiestcashier](https://github.com/sleepiestcashier) : Noob’s biggest fan!
 
-[@yellowdeltarune](https://github.com/yellowdeltarune) : Jack’s (MCSM)
+[@yellowdeltarune](https://github.com/yellowdeltarune) : Jack’s (MCSM) biggest fan!
