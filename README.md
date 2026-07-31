@@ -15,7 +15,7 @@ nominate yourself or a friend as someone’s number one fan ! this will be updat
 [atabook](https://fan-town.atabook.org/)
 </div>
 
-last update : july 30th (4PM CDT)
+last update : july 31st (3AM CDT)
 
 [@undyingregret](https://github.com/undyingregret?tab=followers) : Azurewrath’s biggest fan!
 
@@ -53,7 +53,7 @@ last update : july 30th (4PM CDT)
 
 [@toassteddeer](https://github.com/toassteddeer) : Henrietta Warhol‘s biggest fan!
 
-[@NorthernShine](https://github.com/NorthernShine) ENA’S (ENA: Dream BBQ) biggest fan!
+[@NorthernShine](https://github.com/NorthernShine) : ENA’S (ENA: Dream BBQ) biggest fan!
 
 [@plvt0z](https://github.com/plvt0z) : Sergio Ramos's biggest fan!
 
@@ -75,7 +75,7 @@ last update : july 30th (4PM CDT)
 
 [@realdustsans](https://github.com/realdustsans) : Dust!Sans’ biggest fan!
 
-[@ShellzyFossilzianz](https://github.com/ShellzyFossilzianz) : 1x1x1x1’s biggest fan!
+[@Cuddling-Encouraged-heavily-Dnc](https://github.com/Cuddling-Encouraged-heavily-Dnc) : 1x1x1x1’s biggest fan!
 
 [@eggcchan](https://github.com/eggcchan) : eggchan’s biggest fan!
 
@@ -97,8 +97,6 @@ last update : july 30th (4PM CDT)
 
 [@avenueq](https://github.com/avenueq) : Aventurine's biggest fan!
 
-[@zt4r-z](https://github.com/Zt4r-z) : Pandemonium’s biggest fan!
-
 [@LCB61](https://github.com/LCB61) : Yi Sang’s biggest fan!
 
 [@camycatyy](https://github.com/camycatyy) : Niko Oneshot's biggest fan!
@@ -108,3 +106,41 @@ last update : july 30th (4PM CDT)
 [@AshesOfHerHalo](https://github.com/AshesOfHerHalo) : Applejack’s biggest fan!
 
 [@UICTIM](https://github.com/UICTIM) : TDL’s biggest fan!
+
+[@KingFrostii](https://github.com/KingFrostii) : Secret Agent’s (AHA) biggest fan!
+
+[@njqh](https://github.com/njqh) : Tim Wright’s biggest fan!
+
+[@yaoiliker](https://github.com/yaoiliker) : Stan Marsh’s biggest fan!
+
+[@unpleasant-like](https://github.com/unpleasant-like) : Unpleasant Gradient’s biggest fan!
+
+[@DEADP0ET](https://github.com/DEADP0ET) : Gojo Satoru’s biggest fan!
+
+[@sk8rlight](https://github.com/sk8rlight) : Kasper/Infected’s biggest fan!
+
+[@MeteoroIogist](https://github.com/MeteoroIogist) : Vincent Whittman’s biggest fan!
+
+[@sea-shantyyy](https://github.com/sea-shantyyy) : Shedletsky/Telamon’s biggest fan!
+
+[@ramudaa](https://github.com/ramudaa) : Ramuda Amemura‘s biggest fan!
+
+[@vatrinyasin](https://github.com/vatrinyasin) : Sae Itoshi‘s biggest fan!
+
+[@ENUMAELlSH](https://github.com/ENUMAELlSH) : Gilgamesh‘s biggest fan!
+
+[@ShellzyFossilzianz](https://github.com/ShellzyFossilzianz) : Three’s biggest fan!
+
+[@freakedoutboy](https://github.com/freakedoutboy) : Biollante's biggest fan!
+
+[@lovingl3tters](https://github.com/lovingl3tters) : Mafialings‘ biggest fan!
+
+[@computerfanaticc](https://github.com/computerfanaticc) : Leith Pierre’s biggest fan!
+
+[@princezammiest](https://github.com/princezammiest) : michaamazing2’s biggest fan!
+
+[@01-800-PAPU](https://github.com/01-800-PAPU) : aldo_geo‘s biggest fan!
+
+[@sleepiestcashier](https://github.com/sleepiestcashier) : Noob’s biggest fan!
+
+[@yellowdeltarune](https://github.com/yellowdeltarune) : Jack’s (MCSM)
