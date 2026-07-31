@@ -133,6 +133,10 @@ last update : july 31st (3AM CDT)
 
 [@freakedoutboy](https://github.com/freakedoutboy) : Biollante's biggest fan!
 
+[@disorderlyfashion](https://github.com/disorderlyfashion) : Blitzø’s biggest fan!
+
+[@OlgaSinxer](https://github.com/OlgaSinxer) : JX1DX1's biggest fan!
+
 [@lovingl3tters](https://github.com/lovingl3tters) : Mafialings‘ biggest fan!
 
 [@computerfanaticc](https://github.com/computerfanaticc) : Leith Pierre’s biggest fan!
