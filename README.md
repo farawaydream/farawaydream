@@ -15,7 +15,7 @@ nominate yourself or a friend as someone’s number one fan ! this will be updat
 [atabook](https://fan-town.atabook.org/)
 </div>
 
-last update : july 31st (3AM CDT)
+last update : july 31st (6AM CDT)
 
 [@undyingregret](https://github.com/undyingregret?tab=followers) : Azurewrath’s biggest fan!
 
@@ -150,3 +150,9 @@ last update : july 31st (3AM CDT)
 [@yellowdeltarune](https://github.com/yellowdeltarune) : Jack’s (MCSM) biggest fan!
 
 [@bluuer](https://github.com/bluuer) : bluudud’s biggest fan!
+
+[@whitemiro](https://github.com/whitemiro) : GroxMC’s biggest fan!
+
+[@mega-ambler](https://github.com/mega-ambler) : Mega Ambler’s biggest fan!
+
+[@develesto](https://github.com/develesto) : c00lkidd’s (Forsaken) biggest fan!
