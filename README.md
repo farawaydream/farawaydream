@@ -156,3 +156,5 @@ last update : july 31st (6AM CDT)
 [@mega-ambler](https://github.com/mega-ambler) : Mega Ambler’s biggest fan!
 
 [@develesto](https://github.com/develesto) : c00lkidd’s (Forsaken) biggest fan!
+
+[@qnakin](https://github.com/qnakin) : Anakin Skywalker’s biggest fan!
