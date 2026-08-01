@@ -212,3 +212,5 @@ last update : august 1st (5AM CDT)
 [@clownfoe](https://github.com/clownfoe) : Grian’s biggest fan!
 
 [@lostcxuse](https://github.com/lostcxuse) : Nezoshoki‘s biggest fan!
+
+[@riddledbatz](https://github.com/riddledbatz) : The Riddler’s biggest fan!
