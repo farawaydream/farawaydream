@@ -15,7 +15,7 @@ nominate yourself or a friend as someone’s number one fan ! this will be updat
 [atabook](https://fan-town.atabook.org/)
 </div>
 
-last update : august 1st (5AM CDT)
+last update : august 1st (6AM CDT)
 
 [@undyingregret](https://github.com/undyingregret) : Azurewrath’s biggest fan!
 
