@@ -214,3 +214,5 @@ last update : august 1st (6AM CDT)
 [@lostcxuse](https://github.com/lostcxuse) : Nezoshoki‘s biggest fan!
 
 [@riddledbatz](https://github.com/riddledbatz) : The Riddler’s biggest fan!
+
+[@sproutseedlymain](https://github.com/Sproutseedlymain) : Sprout Seedly’s biggest fan!
