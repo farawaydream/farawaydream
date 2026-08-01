@@ -15,7 +15,7 @@ nominate yourself or a friend as someone’s number one fan ! this will be updat
 [atabook](https://fan-town.atabook.org/)
 </div>
 
-last update : august 1st (6AM CDT)
+last update : august 1st (4PM CDT)
 
 [@undyingregret](https://github.com/undyingregret) : Azurewrath’s biggest fan!
 
@@ -216,3 +216,37 @@ last update : august 1st (6AM CDT)
 [@riddledbatz](https://github.com/riddledbatz) : The Riddler’s biggest fan!
 
 [@sproutseedlymain](https://github.com/Sproutseedlymain) : Sprout Seedly’s biggest fan!
+
+[@GrimEmbrace](https://github.com/GrimEmbrace) : Celestial’s (NULLSCAPE) biggest fan!
+
+[@lronmary](https://github.com/lronmary) : Simon’s (Iron Lung) biggest fan!
+
+[@simon-henriksson](https://github.com/simon-henriksson) : Simon Henriksson’s biggest fan!
+
+[@Nadd-nadd](https://github.com/Nadd-nadd) : Katsuki’s biggest fan!
+
+[@donniesgaptooth](https://github.com/donniesgaptooth) : Darth Maul’s biggest fan!
+
+[@viimsey](https://github.com/viimsey) : Viperion’s biggest fan!
+
+[@VArtfultrust](https://github.com/VArtfultrust) : Artful’s biggest fan!
+
+[@kiwiconicc](https://github.com/kiwiconicc) : Saiki Kusuo’s biggest fan!
+
+[@MiguelOharaL0ver](https://github.com/MiguelOharaL0ver) : Lyla’s (ATSV) biggest fan!
+
+[@nightguarding](https://github.com/nightguarding) : Mangle’s biggest fan!
+
+[@wesb0rland](https://github.com/wesb0rland) : Deadpool’s biggest fan!
+
+[@timaeusTT](https://github.com/timaeusTT) : Tenna’s biggest fan!
+
+[@pleasantreverie](https://github.com/pleasantreverie) : Grillby’s biggest fan!
+
+[@fuminoomi](https://github.com/fuminoomi) : Papyrus’ biggest fan!
+
+[@zandiik](https://github.com/zandiik) : Dottore’s (Genshin Impact) biggest fan!
+
+[@GILLIONTIDESTRIDER](https://github.com/GILLIONTIDESTRIDER) : Gillion Tidestrider’s biggest fan!
+
+[@puppyfes](https://github.com/puppyfes) : Rui Kamishiro’s biggest fan!
