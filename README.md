@@ -17,7 +17,7 @@ nominate yourself or a friend as someone’s number one fan ! this will be updat
 
 last update : august 1st (5AM CDT)
 
-[@undyingregret](https://github.com/undyingregret?tab=followers) : Azurewrath’s biggest fan!
+[@undyingregret](https://github.com/undyingregret) : Azurewrath’s biggest fan!
 
 [@omegamaIe](https://github.com/omegamaIe) : Jason Todd’s biggest fan!
 
