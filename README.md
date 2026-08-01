@@ -181,7 +181,7 @@ last update : august 1st (5AM CDT)
 
 [@xathetic](https://github.com/xathetic) : John “Soap” MacTavish’s biggest fan!
 
-[@yanderetan](https://github.com/yanderetan] : PolarCub’s biggest fan!
+[@yanderetan](https://github.com/yanderetan) : PolarCub’s biggest fan!
 
 [@pillielovesvroomvroom](https://github.com/pillielovesvroomvroom) : Jenson Button’s biggest fan!
 
