@@ -15,7 +15,7 @@ nominate yourself or a friend as someone’s number one fan ! this will be updat
 [atabook](https://fan-town.atabook.org/)
 </div>
 
-last update : july 31st (6AM CDT)
+last update : august 1st (5AM CDT)
 
 [@undyingregret](https://github.com/undyingregret?tab=followers) : Azurewrath’s biggest fan!
 
@@ -155,6 +155,56 @@ last update : july 31st (6AM CDT)
 
 [@mega-ambler](https://github.com/mega-ambler) : Mega Ambler’s biggest fan!
 
-[@develesto](https://github.com/develesto) : c00lkidd’s (Forsaken) biggest fan!
+[@develesto](https://github.com/develesto) : pr3tydud's (bluuworld) biggest fan!
 
 [@qnakin](https://github.com/qnakin) : Anakin Skywalker’s biggest fan!
+
+[@cfluixon](https://github.com/cfluixon) : Fluixon’s biggest fan!
+
+[@weepinglilies](https://github.com/weepinglilies) : Medkit’s biggest fan!
+
+[@xolariis](https://github.com/xolariis) : Berdly’s biggest fan!
+
+[@ch3shyre](https://github.com/ch3shyre) : Leon Kennedy’s biggest fan!
+
+[@charliezahrlie](https://github.com/charliezahrlie) : Nagito Komaeda’s biggest fan!
+
+[@gambling-addict](https://github.com/gambling-addict) : Leucole‘s biggest fan!
+
+[@demonbell3](https://github.com/demonbell3) : Vaggi’s biggest fan!
+
+[@LQDYTANO](https://github.com/LQDYTANO) : Ahsoka Tano’s biggest fan!
+
+[@VOXMANIA](https://github.com/VOXMANIA) : Vox’s biggest fan!
+
+[@azpyiel](https://github.com/Azpyiel) : Golden Cheese Cookie’s biggest fan!
+
+[@xathetic](https://github.com/xathetic) : John “Soap” MacTavish’s biggest fan!
+
+[@yanderetan](https://github.com/yanderetan] : PolarCub’s biggest fan!
+
+[@pillielovesvroomvroom](https://github.com/pillielovesvroomvroom) : Jenson Button’s biggest fan!
+
+[@bunchoffriends](https://github.com/bunchoffriends) : Anthony Po’s biggest fan!
+
+[@yaasuhiro](https://github.com/yaasuhiro) : Yasuhiro Hagakure's biggest fan!
+
+[@Misteria0](https://github.com/Misteria0) : Kenny McCormick’s biggest fan!
+
+[@hamfoolish](https://github.com/hamfoolish) : Hal Jordan’s biggest fan!
+
+[@PURSUITCORE](https://github.com/PURSUITCORE) : Bendy’s biggest fan!
+
+[@SQUEVIL](https://github.com/SQUEVIL) : Squiddo’s biggest fan!
+
+[@sir-chloe](https://github.com/sir-chloe) : Astro Novalite’s biggest fan!
+
+[@abookslines](https://github.com/abookslines) : 007n7’s biggest fan!
+
+[@Knuckl3z](https://github.com/Knuckl3z) : Metal Sonic’s biggest fan!
+
+[@tasouken](https://github.com/tasouken) : Snufkin’s biggest fan!
+
+[@eatingmycomputer](https://github.com/eatingmycomputer) : Pearl Houzuki's biggest fan!
+
+[@MsCarolynne](https://github.com/MsCarolynne) : Bobette Carolynne’s biggest fan!
