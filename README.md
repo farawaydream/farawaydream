@@ -208,3 +208,7 @@ last update : august 1st (5AM CDT)
 [@eatingmycomputer](https://github.com/eatingmycomputer) : Pearl Houzuki's biggest fan!
 
 [@MsCarolynne](https://github.com/MsCarolynne) : Bobette Carolynne’s biggest fan!
+
+[@clownfoe](https://github.com/clownfoe) : Grian’s biggest fan!
+
+[@lostcxuse](https://github.com/lostcxuse) : Nezoshoki‘s biggest fan!
